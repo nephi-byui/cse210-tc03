@@ -4,3 +4,7 @@ Tianna DeSpain
 Hi my name is Tianna! I live in Idaho Falls, Idaho. I like baking, reading and napping! I have been married for about 3 years. I also play the flute.
 Nephi Malit
 I'm Nephi from Quezon City, Philippines. I like tinkering, taking things apart and putting them together again. I love spicy food. I have four kids.
+
+Alan Crisanto
+
+Hi, my name is Alan Crisanto, I live in Lima, Peru. I like programming, play the guitar and play soccer. I'm married, my wife's name is Alexandra and we like to watch anime together.
