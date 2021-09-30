@@ -11,4 +11,4 @@ Alan Crisanto
 Hi, my name is Alan Crisanto, I live in Lima, Peru. I like programming, play the guitar and play soccer. I'm married, my wife's name is Alexandra and we like to watch anime together.
 
 Tatenda Felix Mukaro
-Hello Team! I am Felix from Harare Zimbabwe . I am an Information Technology enthusiast seeking for opportunities to learn,network and grow in the Technology Industry. I play the Mbira and I love freelance photography.
+Hello Team! I am Felix from Harare Zimbabwe . I am an Information Technology enthusiast seeking for opportunities to learn,network and grow in the Technology Industry. I play the Mbira and I love freelance photography. I have 0 kids and single.
